@@ -1,0 +1,1 @@
+# sngames-privacy
